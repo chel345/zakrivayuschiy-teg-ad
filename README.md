@@ -1,1 +1,1 @@
-https://github.com/chel345/zakrivayuschiy-teg-ad
+https://chel345.github.io/zakrivayuschiy-teg-ad/
